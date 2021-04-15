@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Spending time with Amanda.
+2. The great outdoors.
+3. Sushi.
